@@ -1,3 +1,0 @@
-1. Hey Jude
-2. With a Little Help from my Friends
-3. Eleanor Rigby
